@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SlackStabber
+- 👀 I’m interested in programming, cybersecurity, and IT
+- 🌱 I’m currently learning LuaU
+- 📫 How to reach me, discord: Solitude#9743 roblox: azoticlife
